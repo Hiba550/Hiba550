@@ -2,7 +2,7 @@
 - 🌱 I’m currently enrolled in engineering
 - 📫 How to reach me (https://discordapp.com/users/1130757158955397190)
 
-*************
+************
 
 ### Hi there, I'm Hiba!👋
 
